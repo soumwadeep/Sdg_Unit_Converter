@@ -11,6 +11,6 @@ Try It Now!!
 We Are Working Hard To Make More Free Apps Like This!
 So Please Support This Begginer Android Developer!
 Thank You For Downloading Our App In Advance!!!
-THIS APP IS UPLOAD IN GETJAR TO DOWNLOAD!
+THIS APP IS UPLOADED IN GETJAR TO DOWNLOAD!
 JUST VISIT THIS LINK AND DOWNLOAD IT:
 https://www.getjar.com/categories/productivity-apps/phone-tools/Sdg-Unit-Converter-985162
